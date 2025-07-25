@@ -1,1 +1,0 @@
-# jamesmoody.github.io
